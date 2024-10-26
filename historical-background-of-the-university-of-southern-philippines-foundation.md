@@ -1,0 +1,15 @@
+## Historical Background of the University of Southern Philippines Foundation
+
+The University of Southern Philippines Foundation (USPF) is a private, non-sectarian institution in Cebu City, Philippines, founded on the entrepreneurial and educational vision of a group of renowned professionals and educators. Established initially as the Southern Institute on May 14, 1927, it began with a modest enrollment of 121 students in a rented space on Colon Street, Cebu City. Within a year, it received permissions to offer a full elementary course and initial secondary education.
+
+The institution's growth was marked by the construction of a dedicated building on Mabini Street in 1933, which coincided with the opening of the College of Commerce. Over the subsequent years, the institution expanded its academic offerings to include the College of Liberal Arts, Civil Engineering, and Law, showcasing its commitment to providing a comprehensive education. In 1937, the Southern Institute transformed into the Southern College, further broadening its scope with the Junior Normal Course and the College of Education.
+
+The outbreak of World War II disrupted operations significantly, damaging infrastructure and halting academics. However, demonstrating resilience, the school was rebuilt post-war using surplus materials from the U.S. Army. By 1945, education resumed with renewed vigor at a new site in Camputhaw (present-day Lahug). The post-war era saw significant milestones, such as the acquisition of government recognition for various courses and the introduction of a postgraduate education program, which facilitated its transition to the University of Southern Philippines (USP) on July 8, 1949.
+
+From the late 1950s through the 1990s, USP transitioned into a non-stock, non-profit foundation, witnessed expansion in academic programs, endured fire-related setbacks, and strategically concentrated efforts on the Lahug Campus. These decisions were pivotal in shaping the university's infrastructure, which includes prominent facilities like the Alumni Hall and Rizaliana Museum.
+
+In the ensuing decades, USPF enhanced its curricular offerings across diverse disciplines, including engineering, computer studies, and health sciences. Its commitment to quality education led to PACUCOA accreditation for multiple programs, reflecting a continual striving for excellence and educational innovation.
+
+Notable milestones in recent years include varied partnerships, infrastructural advancements like CCTVs for improved safety, and maintenance of high standards evident through board exam results. Additionally, the university has embraced modern educational tools such as Canvas LMS to optimize learning outcomes.
+
+USPF stands today as a testament to its founders' vision, a resilient institution dedicated to educational excellence, and community-oriented growth, embodying a legacy of service and transformation that spans decades.
