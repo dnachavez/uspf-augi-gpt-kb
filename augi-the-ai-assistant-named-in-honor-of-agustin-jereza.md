@@ -1,0 +1,7 @@
+## Augi: The AI Assistant Named in Honor of Agustin Jereza
+
+The University of Southern Philippines Foundation (USPF) recently introduced its new AI assistant, "Augi." This AI innovation has a unique heritage, as the name “Augi” is derived from Agustin Jereza, the university's esteemed founder. In recognizing Jereza's commitment to education and forward-thinking values, the university chose to name the AI in his honor.
+
+Augi was developed to serve as a virtual guide and helper within the university, assisting students, faculty, and staff in navigating resources and accessing information seamlessly. The project was led by the Software Development & Management Unit (SDMU), a key player in USPF's Information and Communications Technology (ICT) department. The SDMU took on the challenge of creating this virtual assistant as part of its broader mission to enhance the university's educational and operational framework through technology.
+
+By establishing Augi, USPF’s SDMU has created more than just an assistant; they've extended Agustin "Augi" Jereza's vision, emphasizing a commitment to blending education with innovation. This new AI support represents both a modern tool for the university community and a tribute to the values that have long defined USPF’s legacy.
